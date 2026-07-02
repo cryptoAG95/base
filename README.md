@@ -20,3 +20,4 @@ ezrezrezrezr
 rztzerzerfzef
 azearretrtrtretrtertret
 retretrtr
+TGE airdrop
