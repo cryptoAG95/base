@@ -20,7 +20,7 @@ ezrezrezrezrrterttbfsdfdfsdfsdsdfsdf
 rztzerzerfzefsdfdsfdsffsdfdf
 azearretrtrtretrtertret
 retretrtrazezaezesdfsdfsdfsdfsdf
-TGE airdrop
+TGE airdropsdfsdfsf
 rtretrtretsfsdfsdfdsf
 rtretretrtsfsdfsdfdsf
 fsfsdfsdfsdf
