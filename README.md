@@ -22,7 +22,7 @@ azearretrtrtretrtertret
 retretrtrazezaezesdfsdfsdfsdfsdfsdfsdf
 TGE airdropsdfsdfsfsdf
 rtretrtretsfsdfsdfdsf
-rtretretrtsfsdfsdfdsfvbc
+rtretretrtsfsdfsdfdsfvbck,lk,n
 fsfsdfsdfsdfsds
 dsfdsfsfsfsf
 dfsdfdsfsdfsdfsdf
