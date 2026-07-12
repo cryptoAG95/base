@@ -23,7 +23,7 @@ retretrtrazezaezesdfsdfsdfsdfsdfsdfsdf
 TGE airdropsdfsdfsfsdf
 rtretrtretsfsdfsdfdsf
 rtretretrtsfsdfsdfdsfvbck,lk,n
-fsfsdfsdfsdfsds
+fsfsdfsdfsdfsdsTGE
 dsfdsfsfsfsf
 dfsdfdsfsdfsdfsdf
 dsfdsfsdffdsfsdf
