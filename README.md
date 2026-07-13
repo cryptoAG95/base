@@ -24,6 +24,6 @@ TGE airdropsdfsdfsfsdf
 rtretrtretsfsdfsdfdsf
 rtretretrtsfsdfsdfdsfvbck,lk,n
 fsfsdfsdfsdfsdsTGE
-dsfdsfsfsfsf
+dsfdsfsfsfsfSOON
 dfsdfdsfsdfsdfsdf
 dsfdsfsdffdsfsdf
