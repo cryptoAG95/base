@@ -1,7 +1,7 @@
 # base TGE soon ?sfsfdsdf
 i hope
 maybetesrtsdfsdfsdf
-before end of 2026 ?zeazeazeererzererezr
+before end of 2026 ?zeazeazeererzererezrTGE
 let's go gfgdfgsdfsdfsdf
 sgrgsdfsdfdfsdfsdfssdfsdfsdfdsf
 gfdgdazezaezaefsdfsfsdsdfsdfsdfsdfsd
