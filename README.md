@@ -20,7 +20,7 @@ ezrezrezrezrrterttbfsdfdfsdfsdsdfsdfsdfsdfdsf
 rztzerzerfzefsdfdsfdsffsdfdfgyttge
 azearretrtrtretrtertretTGE
 retretrtrazezaezesdfsdfsdfsdfsdfsdfsdfSeptember ?
-TGE airdropsdfsdfsfsdf
+TGE airdropsdfsdfsfsdfKOL
 rtretrtretsfsdfsdfdsf
 rtretretrtsfsdfsdfdsfvbck,lk,nTR
 fsfsdfsdfsdfsdsTGE
