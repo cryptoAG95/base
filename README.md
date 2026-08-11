@@ -1,4 +1,4 @@
-# base TGE soon ?sfsfdsdf
+# base TGE soon ?
 i hope
 maybetesrtsdfsdfsdf
 before end of 2026 ?zeazeazeererzererezrTGE
