@@ -24,6 +24,6 @@ TGE airdropsdfsdfsfsdfKOL
 rtretrtretsfsdfsdfdsf
 rtretretrtsfsdfsdfdsfvbck,lk,nTR
 fsfsdfsdfsdfsdsTGE
-dsfdsfsfsfsfSOON
+dsfdsfsfsfsfSOON2026
 dfsdfdsfsdfsdfsdfSOON
 dsfdsfsdffdsfsdfWEN2026
